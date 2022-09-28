@@ -1,3 +1,6 @@
 # hactoberfestdemo
 Welcome! 
-## ADD YOUR NAMES BELOW:
+## ADD YOUR NAMEriS BELOW:
+Ritik Sharma
+instagram= em_ritik_
+twitter= emritiksharma
