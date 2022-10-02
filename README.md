@@ -1,3 +1,8 @@
+
+jai jai AR Club !!
+Mehh is aditya vijay
+huihuihui
+
 # hactoberfestdemo
 
 Welcome!
@@ -7,10 +12,17 @@ Welcome!
 Prince Kumar
 ankityadav1852@gmail.com
 
+
+Aryan Panchal @aryan_260 twitter
+Aryan Panchal @__aryan8_ insta
+
 Soumili @sequin*lush
 Ashish @ashishnegi*.\_
 
 Soumili @sequin_lush
+
+thakuryashika@gmail.com
+
 
 keshav @keshav18164691 t
 
@@ -28,15 +40,5 @@ Prince @the_badass_noob
 
 thakuryashika976@gmail.com
 
-
-Aryan Panchal @aryan_260  twitter
-Aryaan Panchal @__aryan8_ insta
-
-
-Deepank Pushpad @deepank_rx insta
-
-Jatin Dhiman @Jatindhiman5053 Insta
-
 Aryan Panchal @aryan*260 twitter
 Aryaan Panchal @\_\_aryan8* insta
-
