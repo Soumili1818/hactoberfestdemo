@@ -6,4 +6,4 @@ ankityadav1852@gmail.com
 Soumili @sequin_lush
 
 
-Nitin Kumar
+Nitin Kumar - nitin2324kumar@gmail.com
