@@ -1,4 +1,3 @@
-# hactoberfestdemo
-Welcome! 
-## ADD YOUR NAMES BELOW:
-Soumili @sequin_lush ig
+jai jai AR Club !!
+Mehh is aditya vijay
+huihuihui
