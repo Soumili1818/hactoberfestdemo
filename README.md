@@ -4,6 +4,9 @@ Welcome!
 
 ## ADD YOUR NAMES BELOW:
 
+Mridul Goel 
+@mridulgoel03 All handle :)
+
 Prince Kumar
 ankityadav1852@gmail.com
 
@@ -39,4 +42,3 @@ Jatin Dhiman @Jatindhiman5053 Insta
 
 Aryan Panchal @aryan*260 twitter
 Aryaan Panchal @\_\_aryan8* insta
-
