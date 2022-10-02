@@ -3,11 +3,16 @@ jai jai AR Club !!
 Mehh is aditya vijay
 huihuihui
 
+personal website: https://adityavijay.codes
+
 # hactoberfestdemo
 
 Welcome!
 
 ## ADD YOUR NAMES BELOW:
+
+Mridul Goel 
+@mridulgoel03 All handle :)
 
 Prince Kumar
 ankityadav1852@gmail.com
