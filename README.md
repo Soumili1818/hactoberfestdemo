@@ -32,6 +32,9 @@ thakuryashika976@gmail.com
 Aryan Panchal @aryan_260  twitter
 Aryaan Panchal @__aryan8_ insta
 
+
+Deepank Pushpad @deepank_rx insta
+
 Jatin Dhiman @Jatindhiman5053 Insta
 
 Aryan Panchal @aryan*260 twitter
