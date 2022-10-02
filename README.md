@@ -54,12 +54,18 @@ Aryan Panchal @aryan*260 twitter
 Aryaan Panchal @\_\_aryan8* insta
 
 
+Aryan Panchal @aryan*260 twitter
+Aryaan Panchal @\_\_aryan8* insta
 
 
-
+RUDRA PRATAP DALEI 
+https://twitter.com/RUDRAPRATAPDAL4 
+https://www.instagram.com/rudrapratapdalei/?hl=en 
+https://www.linkedin.com/in/rudra-pratap-dalei-139668176/
 
 
 Name : Dipali 
 Gmail : dipalikamboj0@gmail.com
 Insta: kambojdipali_05
 LinkedIn:https://www.linkedin.com/in/dipali-kamboj
+
