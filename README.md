@@ -11,6 +11,9 @@ Welcome!
 
 ## ADD YOUR NAMES BELOW:
 
+thakuryashika@gmail.com
+
+
 Mridul Goel 
 @mridulgoel03 All handle :)
 
@@ -49,4 +52,3 @@ thakuryashika976@gmail.com
 
 Aryan Panchal @aryan*260 twitter
 Aryaan Panchal @\_\_aryan8* insta
-
