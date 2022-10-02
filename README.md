@@ -52,3 +52,6 @@ thakuryashika976@gmail.com
 
 Aryan Panchal @aryan*260 twitter
 Aryaan Panchal @\_\_aryan8* insta
+
+
+kartik batra @KartikB92363724
