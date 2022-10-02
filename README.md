@@ -1,6 +1,4 @@
-# hactoberfestdemo
-Welcome! 
-## ADD YOUR NAMES BELOW:
-ANKIT KUMAR YADAV
-ankityadav1852@gmail.com
-Soumili @sequin_lush
+jai jai AR Club !!
+Mehh is aditya vijay
+huihuihui
+personal website: https://adityavijay.codes
