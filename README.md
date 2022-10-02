@@ -48,3 +48,9 @@ Jatin Dhiman @Jatindhiman5053 Insta
 
 Aryan Panchal @aryan*260 twitter
 Aryaan Panchal @\_\_aryan8* insta
+
+
+RUDRA PRATAP DALEI 
+https://twitter.com/RUDRAPRATAPDAL4 
+https://www.instagram.com/rudrapratapdalei/?hl=en 
+https://www.linkedin.com/in/rudra-pratap-dalei-139668176/
