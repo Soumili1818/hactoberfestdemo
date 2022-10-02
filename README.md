@@ -10,6 +10,9 @@ Prince Kumar
 ankityadav1852@gmail.com
 Soumili @sequin_lush
 
+thakuryashika@gmail.com
+
+
 keshav @keshav18164691 t
 
 
