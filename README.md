@@ -83,3 +83,7 @@ Gmail : dipalikamboj0@gmail.com
 Insta: kambojdipali_05
 LinkedIn:https://www.linkedin.com/in/dipali-kamboj
 
+Name:Harshpreet Singh
+Gmail:5911harshsingh@gmail.com
+Insta:_harsh_singh_5911_
+Linkedin: Harshpreet Singh
