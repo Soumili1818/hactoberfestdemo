@@ -90,4 +90,4 @@ Umakshi
 kaushikk.umakkshi@gmail.com
 
 Kaavya Saxena
-[Linkedin] (https://www.linkedin.com/in/kaavya-saxena/)
+[Linkedin](https://www.linkedin.com/in/kaavya-saxena/)
