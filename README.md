@@ -91,3 +91,7 @@ kaushikk.umakkshi@gmail.com
 
 Kaavya Saxena
 [Linkedin](https://www.linkedin.com/in/kaavya-saxena/)
+
+Name : Ammar Ahmad Kidwai 
+[gmail](mailto:akidwai03@gmail.com) |
+linkedin : https://www.linkedin.com/in/ammar-ahmad-kidwai
